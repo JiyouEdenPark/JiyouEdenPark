@@ -1,2 +1,2 @@
-## G'day! Welcome to My Park 🦖
+## G'day, Welcome to My Park 🦖
 
